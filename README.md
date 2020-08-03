@@ -1,1 +1,1 @@
-`Chị Lan mean vl :)))`
+`Chị Lan mean vl`
